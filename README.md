@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I'm Akshay, Experienced mobile app developer with a demonstrated history of working in the IT and service<br>industry. A keen interest in utilizing, implementing and<br>leveraging the latest and trending technology tools. Having a unique and intentive approach to solving problems.<br>Capable of working both alone and in team and<br>incorporating feedback into projects. The ability to pay close<br>attention to detail and the tenacity to never give up until<br>outcome is perfect.
+Hi, I'm Akshay, Experienced mobile app developer with a demonstrated history of working in the IT and service industry. A keen interest in utilizing, implementing and leveraging the latest and trending technology tools. Having a unique and intentive approach to solving problems. Capable of working both alone and in team and incorporating feedback into projects. The ability to pay close attention to detail and the tenacity to never give up until outcome is perfect.
 
 
 ## 🌐 Socials:
